@@ -1,1 +1,1 @@
-# Homework
+# Домашнее задание по курсу Python-for-dh
