@@ -10,7 +10,7 @@
 - психология
 - антропология
 
-![](https://yandex.ru/images/search?img_url=https%3A%2F%2Fb1.culture.ru%2Fc%2F724355.jpg&p=1&text=%D0%9B%D0%B5%D0%B2%20%D0%A2%D0%BE%D0%BB%D1%81%D1%82%D0%BE%D0%B9%20%D1%84%D0%BE%D1%82%D0%BE&pos=53&lr=117555&rpt=simage)
+![](https://vk.com/albums369564458?z=photo369564458_456239993%2Fphotos369564458)
 
 №|Описание|Ссылка на работу
 :---:|:---:|:---:
