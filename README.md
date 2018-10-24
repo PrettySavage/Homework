@@ -10,7 +10,7 @@
 - психология
 - антропологии
 
-![](https://yandex.ru/images/search?img_url=https%3A%2F%2Fb1.culture.ru%2Fc%2F724355.jpg&p=1&text=Лев%20Толстой%20фото&pos=53&lr=117555&rpt=simage)
+![](https://yandex.ru/images/search?pos=5&img_url=https%3A%2F%2Fjuicyecumenism.com%2Fwp-content%2Fuploads%2FAugustine-of-Hippo1.jpg&text=августин&rpt=simage)
 
 №|Описание|Ссылка на работу
 :---:|:---:|:---:
