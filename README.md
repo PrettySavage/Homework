@@ -10,7 +10,9 @@
 - психология
 - антропологии
 
+
 ![](https://yandex.ru/images/search?pos=5&img_url=https%3A%2F%2Fjuicyecumenism.com%2Fwp-content%2Fuploads%2FAugustine-of-Hippo1.jpg&text=августин&rpt=simage)
+
 
 №|Описание|Ссылка на работу
 :---:|:---:|:---:
