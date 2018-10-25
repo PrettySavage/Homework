@@ -17,6 +17,6 @@
 ## Homeworks
 №|Описание|Ссылка на работу
 :---:|:---:|:---:
-1| |
+1|06.10.18 |[HW1](https://github.com/PrettySavage/python-dh-hw/blob/master/HW1.ipynb)
 2| |
 3| |
