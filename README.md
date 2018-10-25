@@ -11,7 +11,7 @@
 - антропологии
 
 
-![](https://yandex.ru/images/search?pos=10&img_url=https%3A%2F%2Faidanharticons.com%2Fwp-content%2Fuploads%2F2016%2F10%2FSt-Augustine-of-Canterbury-icon.jpg&text=августин&rpt=simage)
+![](https://yandex.ru/images/search?pos=10&img_url=https%3A%2F%2Faidanharticons.com%2Fwp-content%2Fuploads%2F2016%2F10%2FSt-Augustine-of-Canterbury-icon.jpg)
  
 
 ## Homeworks
