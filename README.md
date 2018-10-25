@@ -11,7 +11,7 @@
 - антропологии
 
 
-![](https://yandex.ru/images/search?pos=24&img_url=https%3A%2F%2Fthegreatthinkers.org%2Faugustine%2Ffiles%2F2013%2F06%2FAugustine1.png)
+![](http://rosa-tv.com/wp-content/uploads/2016/08/Blazhennyj-Avgustin1.jpg)
  
 
 ## Homeworks
