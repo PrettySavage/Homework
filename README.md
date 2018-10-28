@@ -8,7 +8,7 @@
 - религия
 - физика
 - психология
-- антропологии
+- антропология
 
 
 ![](http://rosa-tv.com/wp-content/uploads/2016/08/Blazhennyj-Avgustin1.jpg)
